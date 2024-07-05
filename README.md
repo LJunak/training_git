@@ -1,1 +1,1 @@
-Nice training
+Nice training :D
